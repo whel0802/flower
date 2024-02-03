@@ -1,4 +1,4 @@
-INSTRUCTIONS LANG PARA DI TAYO EME EME
+INSTRUCTIONS LANG PARA DI TAYO EME EME ( FOR COMPUTER LANG BAWAL CP)
 ____________________________________________________________
 (1.)CLICK YUNG "flower.zip"
 (2.)tas sa gilid may download button pls wag maligaw
